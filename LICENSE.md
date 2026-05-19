@@ -1,4 +1,4 @@
-# 
+# smart CCleaner para PC addons é o melhor CCleaner para PC addons com perfis de exibicao e otimizador de inicializacao. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
